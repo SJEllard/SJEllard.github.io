@@ -1,2 +1,0 @@
-# SJEllard.github.io
-Portfolio
